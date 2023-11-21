@@ -1,3 +1,1 @@
 # hatohatosan.github.io
-
-あいうえお
